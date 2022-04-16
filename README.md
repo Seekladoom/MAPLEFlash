@@ -19,5 +19,7 @@ swf下载链接：http://s8.4399.com/4399swf/upload_swf/ftp/20090417wen/13.swf
 
 编剧：Eternity恆 副會長 藍蝶妃
 
+游戏下载链接（EXE、SWF格式）：https://github.com/Seekladoom/MapleStory-FlashGame/tree/main/%E6%9E%AB%E4%B9%8B%E8%B0%B7%20%E7%BC%98%E5%B0%BD%E5%89%AA%E5%88%80
+
 几年前玩的一个冒险岛同人游戏，想重温一下结果发现B站上只有缘尽剪刀的二代，没有一代。
 所以就录了传上来了，方便同样喜欢这个游戏的朋友们重温。
